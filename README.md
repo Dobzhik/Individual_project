@@ -16,7 +16,8 @@
 
 
 
-![photo_5458512093432113654_y](https://github.com/user-attachments/assets/4a26cb14-f373-48f6-8790-c408ad162221)
+![изображение](https://github.com/user-attachments/assets/48907409-3fb8-44b6-88bd-53b10c43a558)
+
 
 
 
